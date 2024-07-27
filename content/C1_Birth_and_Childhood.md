@@ -1,3 +1,5 @@
+# Birth and Childhood
+
 Barry George Finn, first son of George and Emily, was born in Thornbury, Melbourne on 27th September 1934.
 
 His father, George, came from a fairly prosperous family but his mother Emily, came from a working class family. 
@@ -19,7 +21,6 @@ Barry enjoyed his childhood in Nauru:
 
  World War II began in 1939 and would quickly change Barry's life on Nauru.
 
- 
-
+[Boyhood and School Life](./C2_Boyhood_and_School_Life.html)
 
 [Home](../index.html)

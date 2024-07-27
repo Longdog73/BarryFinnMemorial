@@ -18,7 +18,6 @@ On a technical note, I am trying to create content in markdown files and have it
 
 ~~I am using VS Code and the extension "Custom MD PDF" to automatically convert the markdown to html.~~
 
+I am using VS Code and the extension "md-to-html-with-template" to  convert the markdown to html.  This requires pressing CTRL-SHIFT-ALT-P to publish to html 
 
-I am using VS Code and the extension "md-to-html-with-template" to automatically (???) convert the markdown to html.  (May need to press CTRL-SHIFT-ALT-P)
-
-
+Possibly a better way: https://stackoverflow.com/questions/37770620/how-to-include-markdown-md-files-inside-html-files 
