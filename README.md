@@ -10,9 +10,9 @@ Due to the way that Barry's 7 minute "funeral" was held there was a lack of clos
 
 The celebrant said "...very little is known about about his parents and his education... but was was known that he worked for many years as a manager for Big W."
 
-This gross oversight / simplification inspired this project to which aims to show what an interesting and full life Barry lived.
+This gross oversight / simplification prompted the creation of this project to which aims to show what an interesting and full life Barry lived.
 
-Anyone who knew Barry would know that there was more to him than working for Big W. (He helped make it what it is today.)
+Anyone who knew Barry would know that there was far more to him than working for Big W.
 
 ## Technical Goals
 
