@@ -16,5 +16,6 @@ p {
 }
 
 img {
-    padding: 25px;
+    margin: 25px;
+    border-radius: 15px;
 }
