@@ -24,4 +24,4 @@ I am creating the content in markdown files, where it is more humanly readable /
 
 I am using VS Code and the extension "md-to-html-with-template" to  convert the markdown to html.  This requires manually pressing CTRL-SHIFT-ALT-P to publish to html. 🙁
 
-Possibly a better way: https://stackoverflow.com/questions/37770620/how-to-include-markdown-md-files-inside-html-files
+Possibly a better way: <https://stackoverflow.com/questions/37770620/how-to-include-markdown-md-files-inside-html-files>
