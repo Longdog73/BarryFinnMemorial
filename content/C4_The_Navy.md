@@ -1,0 +1,33 @@
+# The Navy
+
+In October 1951, when he was seventeen and one month, Barry travelled on a series of trains to Flinders Naval Depot just south of Melbourne.
+
+He did a six month recruits' course from October 1951 to April 1952. At the end of the course Barry had to choose the field in which he was to spend his six year term.
+
+At first he chose to follow his father's trade, being an electrician but he did not feel that it suited him and so after a two week trial he changed to work on air radio. After settling on this trade, Barry was posted to Nowra at 'Fleet Air Arm' headquarters.
+
+Barry worked on the radios that planes carried for communications. Most planes had three but some had as many as seven.
+
+Barry was assigned to duty on an aircraft carrier which had propeller-driven aircraft and he mostly worked on the Sea Furies. These planes had a radial engine and were an improved version of the Spitfire.
+
+The first of Barry's two major trips with the Navy was to Korea in 1953. This lasted for nine months and was during the closing stages of the Korean War.
+
+Barry's ship stood off Korea and they sent in their Sea Furies with 50 lb bombs.
+
+After the cease fire, Barry was based in Japan and Hong Kong in case the peace talks broke down. He travelled both of these countries extensively.
+
+He also visited ports in Singapore, Bankok, Manilla and the Pacific Islands.
+
+Barry really enjoyed himself in the Navy:
+
+>I don't think I regretted one day... I don't think I regretted one minute... I might've... I sailed into a lot of things. I learned a lot. I learned to look after myself... I learned to swim... and I thought I'd learned to dive...
+>
+>We had anchored in this lagoon because there was a storm coming up and they took safety... and we'd decided to dive from the flight deck into the ocean. Now it's 150 ft from the top of the flight deck to the ocean  and a couple of guys had gone off and of course they were real dare devils. They'd even eat toast without butter on it; they'd do anything for a laugh. So I went off and they seemed to live so I thought I'd go off, and I looked down and ooohhh, I couldn't. I couldn't. I had butterflies and such, and some dirty mongeral pushed me.
+>
+>Well I went sailing throught the air, took about four months to get to the bottom, and when I did I suddenly had the sense to tuck up, cause I was going faster than a speeding bullet I tell ya. I went down so far I thought I'd never come up again, my lings were burstingand I xome up and all these fellas were yelling and I thought they were cheering me. So I'm trying to take a bow in the water... What they were trying to say was "Shark! Shark! Ya dopey... Quick! Quick! Move!" and I suddenly realised what they were talking about.
+>
+>Well my body came out of the water like a hovercraft and I'm on the tips of my fingers and the tips of my toes, and they're all goin' round... my arms and legs are all goin' about 300 miles per hour and I'm doin' about two feet now... I just couldn't move properly.
+>
+>I still don't know whether the shark was chasing me but there was a shark there... I saw a big fin... I swam as fast as I could and sort of got right up on this beach which miraculously appeared. I think the fellas pushed the beach towards me more the fact that I actually made it swimming.
+
+[Home](../index.html)
