@@ -1,0 +1,29 @@
+# Weapons Research
+
+Towards the end of Barry's seven years in the Navy, he had a choice to either sign on for another term or find another career. At this time, de Haviland Aircraft Company were involved in rocket research at Woomera and they were looking for experienced people to work in telemetry.
+
+Some de Haviland recruiters visited Barry's ship knowing that the Navy had people experienced in aircraft radio. He accepted one of the positions offered because it was a field that interested him, the wages were good and they supplied meals and accommodation. He also wanted more independence than the Navy allowed him.
+
+Barry started working for de Haviland in January 1959 in Edinburgh near Adelaide. He worked on a rocket called [Black Knight](https://en.wikipedia.org/wiki/Black_Knight_(rocket)) which was a precursor to another rocket called "Blue Streak".
+
+Most of the research he did was in the telemetry department for the rockets. Barry worked on equipment in the nose cone of the rocket to send data such as temperature and speed of the rocket.
+
+In June 1959, Barry travelled to England to gain further training in telemetery. While in England, he became friendly with a girl named Ann. Her fiance had been a race car driver and had been killed while driving in a race for Stirling Moss. Barry and Ann became very close and wanted to be married but Ann could not leave England because of her mother's declining health.
+
+When he returned, just before Christmas 1959, Barry worked at both Edinburgh and Woomera (470km apart).
+
+In 1960 de Havilands wanted Barry to work on "Blue Streak" and "Melcara" which was a guided bomb project in Salsbury, South Australia. By this time Barry had met Dawn.  She was living in Woomera with her family when they met. Barry wanted to marry her and decided to leave weapons research to settle down to a more stable lifestyle.
+
+As a temporary job, Barry was employed with the Army's group of shops in Woomera known as the "Army Canteen". This contained mens and womens clothing shops, a supermarket and a range of other goods.
+
+Barry worked for six months in this area and gained knowledge of retail shops.
+
+Woolworths was advertising for management staff in the Adelaide Advertiser and Barry wrote a letter to apply and explained his experience in the "Army Canteen". There was no reply.
+
+Barry wrote again and said that he didn't want to work for Woolworths anyway if they didn't have the courtesy to respond to his application. This time he recieved a quick reply - they were very appologetic and claimed to have lost his letter and although interviews were over they offered to see him anyway.
+
+Barry accepted the interview, was successful and began a 23 year career with Woolworths.
+
+Barry left Woomera sadly with fond memories. He had missed city life and the trees which were not present in the dry climate.
+
+[Home](../index.html)

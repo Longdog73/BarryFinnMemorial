@@ -44,10 +44,18 @@ His next car was a black Vanguard which was an ex-taxi and cost four hundered po
 
 >...it had a right hand gear change on the steering column if you please... and it was the time before you had indicator lights so you had to stick your hand out the window... So here you are bowlin' down the street, hand goes out the window to do a right hand turn, hand comes back in to change gears, out again to do ya right hand turn, back in to change down again, anybody would've thought I looked like a weevil in a packet of Weetbix I tell ya...
 
-The second of Barry's two major trips with the Navy was in 1956/1957, traveling to England to bring back HMAS Melbourne.  This was a twelve month trip.
+The second of Barry's two major trips with the Navy was in 1956/1957, traveling to England to bring back [HMAS Melbourne](https://en.wikipedia.org/wiki/HMAS_Melbourne_(R21)). This was a twelve month trip.
 
-The HMAS Melboune was a ship that was rumored to be "jinxed":
+The HMAS Melbourne went on the earn the dubious distinction of being the only British Commonwealth naval vessel to sink two friendly warships in peacetime.  There were a numnber of other accidents, collisions and aircraft losses that ledw to the ship being known as "jinxed":
 
 >The Melbourne was the one on which all the deaths occurred over the two trips we were on... and the Melbourne was the one that sliced through a shiup and sliced through two of her escort ships and I suppose... I think they attibuted two or three hundered deaths to the Melbourne and it was sort of a spooky ship...
+
+The ship that the Melboune sliced through was called the Voyager and this was a [major tragedy in 1964](https://en.wikipedia.org/wiki/Melbourne%E2%80%93Voyager_collision) a few years after Barry's term in the Navy.
+
+Barry also served on HMAS Sydney and HMAS Vengence.
+
+Just before Barry ended his Naval career, jets were being introduced. These were much cleaner aircraft to work on as there wasn't the oil and fuel spills.  Access to the engine and other equipment was also much simpler.
+
+Barry's initial enlistment had been for six years but he did not realise that the six years began when he was eighteen.  His term was actually six years and eleven months.  He left the Navy in September 1968.
 
 [Home](../index.html)
